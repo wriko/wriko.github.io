@@ -1,0 +1,1 @@
+# wriko.github.io
